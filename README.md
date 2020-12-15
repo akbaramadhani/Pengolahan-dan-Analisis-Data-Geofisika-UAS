@@ -1,0 +1,1 @@
+# Pengolahan-dan-Analisis-Data-Geofisika-UAS
